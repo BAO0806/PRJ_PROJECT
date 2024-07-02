@@ -1,1 +1,1 @@
-# PRJ_PROJECT
+Khi nhin thay da update duoc roi
